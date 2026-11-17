@@ -47,5 +47,5 @@ Français (courant) · Anglais (niveau A1, en progression)
 ## 📫 Me contacter
 
 - ✉️ [alabamakeke@gmail.com](mailto:alabamakeke@gmail.com)
-- 💼 LinkedIn : Alabama CHATARD
+- 💼 [LinkedIn : Alabama CHATARD](https://www.linkedin.com/in/alabama-chatard-b40273449)
 - 📍 Libreville, Gabon
